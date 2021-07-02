@@ -1,3 +1,4 @@
-### Este es mi cuenta personal¿, seguime en @faaabroo
+### No se
 
 codeo giladas para romper las bolas y entretenerme un rato, hay mucho código basura pero estoy aprendiendo bancame un toque
+[Ig](https://www.instagram.com/faaabroo/)
